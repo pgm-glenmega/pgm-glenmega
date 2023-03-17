@@ -8,4 +8,3 @@ My name is Glen Meganck and i wanna give you a quick summary about me.
 - 📣 I like the responsibility of a leadership role
 - 💬 I am very determined and strong-willed
 - ⚡ Fun fact: I am a bodybuilder and kickboxer
-- 
